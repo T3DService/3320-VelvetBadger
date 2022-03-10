@@ -1,2 +1,2 @@
 # 3320-VelvetBadger
-Christian LaBootlalala (walk) Digital Catwalk 
+Christian LaBootlalala (shoes) Digital Catwalk 
